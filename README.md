@@ -1,0 +1,2 @@
+# EXAMEN1_TENDENCIAS
+Examen Parcial 1
